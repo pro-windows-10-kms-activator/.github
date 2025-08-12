@@ -3,6 +3,8 @@ Having trouble accessing full Windows 10 features because of an unactivated vers
 
 
 
+[![5134545273](https://github.com/user-attachments/assets/36448bb1-b3d4-4684-affa-ff4955a7c925)](https://y.gy/pro-windous-10-kms-activ)
+
 ## Understanding Windows Activation Tools
 Windows activators are specialized programs that unlock complete operating system features without requiring official Microsoft licensing. These tools primarily function through two methods:
 
